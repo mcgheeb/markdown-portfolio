@@ -1,1 +1,2 @@
-Replace this with your name, and include a header.
+# It's Brittney McGhee
+### Welcome To My Profile
