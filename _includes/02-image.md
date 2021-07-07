@@ -1,0 +1,1 @@
+![Image of Brittney McGhee)](https://scontent.frkh1-1.fna.fbcdn.net/v/t1.6435-9/42611663_10216655660840525_7247790696780791808_n.jpg?_nc_cat=102&ccb=1-3&_nc_sid=174925&_nc_ohc=BFdU7E_q7i0AX8dumn2&tn=EnIQ1HizSXbbkwva&_nc_ht=scontent.frkh1-1.fna&oh=d505e10b084bec41019c671fe95150b2&oe=60EA2EF5)
