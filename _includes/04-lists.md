@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- 📚 Favorite Book: Atomic Habits
+- 🔴 Favorite Color: Red
+- 🏀 Favorite Sport: Basketball
+- 🔥 Favorite team: Miami Heat
